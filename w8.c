@@ -1,0 +1,9 @@
+v
+cv
+vcbv
+b
+vvcb
+vb
+vb
+vcb
+vbv
